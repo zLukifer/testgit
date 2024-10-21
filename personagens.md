@@ -1,0 +1,3 @@
+Gon
+Killua
+Hisoka
