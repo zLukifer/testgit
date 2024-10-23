@@ -1,3 +1,4 @@
 Gon
 Killua
 Hisoka
+Kurapika
